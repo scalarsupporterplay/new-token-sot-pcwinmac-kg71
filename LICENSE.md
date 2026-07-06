@@ -1,4 +1,4 @@
-# 
+# Open Source new token sniper bot outils pour Mac OS | Top new token sniper bot outils pour PC Windows. Avec conversion de formats et connectivité Web3 — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
